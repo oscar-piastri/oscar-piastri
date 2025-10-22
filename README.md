@@ -1,6 +1,6 @@
 <p align="center">
 <sub><a href="https://hafhaf.atabook.org/?page=1/" rel="nofollow">atabook</a></sub>
-<sub><a href="https://fruzsilogia.straw.page/" rel="nofollow">strawpage</a></sub>
+<sub><a href="https://opclaren.straw.page" rel="nofollow">strawpage</a></sub>
 <sub><a href="https://x.com/fruzsilogia/" rel="nofollow">twitter</a></sub>
 
 <p align="center">
